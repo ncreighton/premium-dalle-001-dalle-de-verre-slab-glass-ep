@@ -1,0 +1,2 @@
+# premium-dalle-001-dalle-de-verre-slab-glass-ep
+Built for heritage-stained-glass professionals who are tired of spending hours building a system before you can actually use it.  Mobile-optimized for Notion iOS and Android — works everywhere you work. Pre-built databases, views, and formula fields — ready to duplicate and use.  ## What's Included  - Dalle De Verre Slab Glass &amp; Epoxy Resin — fully
